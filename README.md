@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **deepaksmehs@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1J6IcfCXWtnRKgtUARAyL5sueMhFUBG3j/view?usp=drive_link](https://drive.google.com/file/d/1J6IcfCXWtnRKgtUARAyL5sueMhFUBG3j/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1iZ9HpXxJP2zddJi2dRgqCEnC5DguWSUN/view?usp=sharing](https://drive.google.com/file/d/1iZ9HpXxJP2zddJi2dRgqCEnC5DguWSUN/view?usp=sharing)
 
 - ⚡ Fun fact **I'm a Chemical Engineer**
 
